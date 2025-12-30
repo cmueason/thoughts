@@ -1,1 +1,1 @@
-# ernestchan.github.io
+# Thoughts
